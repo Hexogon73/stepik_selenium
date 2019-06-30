@@ -1,1 +1,1 @@
-https://stepik.org/course/575/syllabus
+Practical tasks of the course https://stepik.org/course/575/syllabus
